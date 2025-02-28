@@ -14,7 +14,7 @@
 
 
 - ### 📫 Conecta conmigo
-- https://www.linkedin.com/in/ver%C3%B3nica-villagra-99a19b2a5/details/projects/
+- https://www.linkedin.com/in/veronicavillagravelez/
 - verovillagrav@gmail.com
 
 
